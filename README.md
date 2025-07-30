@@ -15,7 +15,10 @@
 
 - 📫 How to reach me **girijapatil1018@gmail.com**
 
-- ⚡ Fun fact **- 🎭 Trained in Bharatanatyam dance and Carnatic music - 🎵 Playing veena for 11+ years - ✍️ Poetry and prose writer on Instagram - 🏆 Second highest score in district for National Talent Search Examination**
+- ⚡ Fun fact **- 🎭 Trained in Bharatanatyam dance and Carnatic music
+-                - 🎵 Playing veena for 11+ years
+             -   - ✍️ Poetry and prose writer on Instagram
+               - - 🏆 Second highest score in district for National Talent Search Examination**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
